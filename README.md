@@ -1,0 +1,2 @@
+# www.frndchat.com
+👉India social media site.join frndchat and connect with people on internet.  https://www.frndchat.com/register      1. Story    2. Post    3. Insert Video    4. Chat    5. earn money    6. Create Pages    7. Earn Money by Posting Like Comments    8. Enjoy tons of other fun services    9. *Invite friend 5 rupees earning* 👇   (Note: Verified accounts will be given to the first 200 users.)
